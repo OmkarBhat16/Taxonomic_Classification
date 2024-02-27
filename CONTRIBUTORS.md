@@ -2,7 +2,7 @@
 <br/>
 <br/>
 
-## Omkar Bhatt
+## Omkar Bhat
 <br/>
 
 ## Nipun Arun Samudrala
